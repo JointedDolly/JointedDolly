@@ -8,3 +8,7 @@
 ![lace](https://github.com/user-attachments/assets/dc670012-433e-4974-98da-dc9c70b1745e)
 
 ![dividerbottom](https://github.com/user-attachments/assets/e75e2a18-6ce7-469d-8712-692aab79f85f)
+
+
+![](https://komarev.com/ghpvc/?username=ichorism&color=000000&base=102)
+
