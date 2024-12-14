@@ -7,6 +7,6 @@
 
 ![lace](https://github.com/user-attachments/assets/3599dc42-d9f4-4468-89a2-984d301b3108)
 
-.⠀⠀⠀⠀◜ 𓈒⠀⠀ DNI ⠀⠀⠀◝ ⠀⠀⠀
+![key](https://github.com/user-attachments/assets/d4f154f2-5503-4a99-aec3-7335fbf5da51).⠀⠀⠀⠀◜ 𓈒⠀⠀ DNI ⠀⠀⠀◝  
 
 ![dividerbottom](https://github.com/user-attachments/assets/e75e2a18-6ce7-469d-8712-692aab79f85f)
